@@ -1,1 +1,1 @@
-`Visite JW.ORG`
+# Diccionario Strong en español
